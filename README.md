@@ -1,2 +1,2 @@
 # lucas
-aludo do 1°, Lucas G.
+aluno do 1°, Lucas G.
