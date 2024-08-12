@@ -1,2 +1,14 @@
-# lucas
-aluno do 1°, Lucas G.
+Boas vindas ao meu perfil ❤️‍🩹
+
+Meu nome e **Lucas Gabryel** !
+
+Eu no momento, estou estudando na Alura;
+
+
+
+
+
+
+
+
+
