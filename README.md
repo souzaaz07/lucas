@@ -5,7 +5,7 @@ Meu nome e **Lucas Gabryel** !
 Eu no momento, estou estudando na Alura;
 
 
-
+🇳🇱
 
 
 
